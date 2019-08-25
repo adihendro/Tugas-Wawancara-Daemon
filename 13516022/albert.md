@@ -6,6 +6,15 @@ orang yang minta dibikinin website. Di inkubator IT, kak Albert menjadi CMO dan 
 Proker kak Albert di CMO adalah sosialisasi ke himpunan lain bersama intrakampus, biasanya untuk presentasi. Selain itu ada kunjungan ke perusahaan bersama
 ekstrakampus. Lalu CMO juga membuat portofolio agar orang-orang tahu track record inkubator IT.
 
+Lalu, Bagaimana cerita hingga Kak Albert bisa berakhir di ITB, Jurusan Informatika, dan HMIF? Kak Albert berasal dari SMAN 8 jakarta, saat SMA,
+Kak Albert membayangkan ingin masuk FE UI, karena kak Albert adalah salah satu peserta OSN Ekonomi. Namun akhirnya, kak Albert memilih ITB karena
+Top 3 perguruan tinngi, disarankan orang tua, dan juga punya keinginan ngekos (tidak selalu sama ortu). Kak ALbert akhirnya masuk ke STEI lewat
+jalur SNMPTN, dan memilih STEI karena pekerjaan software engineer sepertinya menarik, waktu itu lihat google. Lalu, alasan kak Albert memilih
+masuk IF, karena realistis, dengan ilmu s1, ilmunya siap dipakai untuk kerja dibaningkan denga prodi lainnya. Namun, dari pengalaman kuliah selama
+3 tahun, menurut kak Albert,untuk jadi piawai dalam dunia IF, materi dari kuliah, dosen, dan kurikulum belum cukup. kak Albert juga menyarankan
+kami untuk setidaknya masing - masing memiliki added value.
+
+
 Saat wawancara, kak Albert banyak mention tentang pentingnya ikut lomba. Lalu saya bertanya lebih penting mana, competition atau lomba. Menurut Kak Albert,
 magang dan competition sama pentingnya. Sama-sama memberikan pengalaman yang kampus tidak berikan. Perbedaannya hanya competition berdurasi pendek dan instan.
 Kalau magang, prosesnya kelihatan. Kalau competition, sekali pitching, udah aja. Selain itu, magang dilakukan saat liburan, sedangkan lomba bisa saat kuliah.
@@ -22,3 +31,7 @@ muncul pertanyaan, kak Albert akan menjelaskannya dengan rinci sekaligus memberi
 Menurutku itu sangat informatif, tapi kadang kak Albert suka melenceng ceritanya, sehingga ada kesan redundant(dilebih-lebihkan).
 
 ![13516022](/13516022/13516022.jpg)
+
+
+
+
