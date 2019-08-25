@@ -19,3 +19,4 @@ Kak Yonas ini orangnya kalem dan bijak. Kak Yonas jago mempertahankan argumennya
 dan selama wawancara ia memberitahu tentang pentingnya lomba. Awalnya saya pikir lomba hanya buang-buang waktu saja. Tapi setelah mendengar kak Yonas, saya jadi
 tahu pentingnya lomba. Selain itu kak Yonas juga bisa memberi tips and trick dalam belajar.
 
+![13516030](/13516030/13516030.jpg)
